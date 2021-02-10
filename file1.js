@@ -1,3 +1,0 @@
-ocean
-sea
-pri
